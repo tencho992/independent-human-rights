@@ -1,2 +1,2 @@
-# independent-human-rights **Personal Passion Project**
+**Personal Passion Project**
 --underconstruction
